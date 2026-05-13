@@ -1,4 +1,4 @@
-# 
+# custom Plugin for Soda PDF for PC | Soda PDF for Windows - batch-processing and export-to-Excel is the best Soda PDF for PC | Soda PDF for Windows plugin, featuring
 
 
 
